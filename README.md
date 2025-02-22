@@ -16,4 +16,4 @@
 
 ![image alt](https://github.com/mmarshmary/hiw-to-do-this/blob/97d6d4456d25cfc265743e574be2454df834d964/tumblr_093a21b70e8033ef7631119253f8355c_3c223870_400.gif)
 
-✦ « 𝄞 . ༆ , ༄ , ༅ [rᥱᥒ𝗍rᥡ ✧](https://rentry.co/feis2rntry) ༅ , ༄ , ༆ . 𝄞 » ✦
+ « 𝄞 . ༆ , ༄ , ༅ [rᥱᥒ𝗍rᥡ ✧](https://rentry.co/feis2rntry) ༅ , ༄ , ༆ . 𝄞 » 
