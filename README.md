@@ -19,4 +19,4 @@
 ✩.･*:｡≻───── ⋆♡⋆ ─────.•*:｡✩
 <p align="center">« ♡ 𝚆𝚎𝚋𝚙𝚊𝚐𝚎𝚜 / 𝚂𝚒𝚝𝚎𝚜 ♡ »
   
-« . — ✧ [rᥱᥒ𝗍rᥡ](https://rentry.co/feis2rntry) , [s𝗍rᥲᥕ](https://feis2strww.straw.page) ,     [⍴rᥒs](https://en.pronouns.page/@feisannx) , [gᥙᥒs](https://guns.lol/mmarshmary)✧ — . »
+« . — ✧ [rᥱᥒ𝗍rᥡ](https://rentry.co/feis2rntry) , [s𝗍rᥲᥕ](https://feis2strww.straw.page) ,     [⍴rᥒs](https://en.pronouns.page/@feisannx) , [gᥙᥒs](https://guns.lol/mmarshmary) ✧ — . »
