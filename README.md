@@ -15,7 +15,6 @@
 <p align="center">!⊱ ────── {.⋅ ♫ ⋅.} ───── ⊰! 
 
 ![image alt](https://github.com/mmarshmary/hiw-to-do-this/blob/97d6d4456d25cfc265743e574be2454df834d964/tumblr_093a21b70e8033ef7631119253f8355c_3c223870_400.gif)
-<p align="center">(NOT MINE!! ✧ Creds to the person who made this gif! ><) 
 
 ✩.･*:｡≻───── ⋆♡⋆ ─────.•*:｡✩
 <p align="center">« ♡ 𝚆𝚎𝚋𝚙𝚊𝚐𝚎𝚜 / 𝚂𝚒𝚝𝚎𝚜 ♡ »
