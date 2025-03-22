@@ -5,7 +5,7 @@
 ![image alt](https://64.media.tumblr.com/604e6422a9c614d446f1e6f0726da47a/8490e15d3c43c594-54/s400x600/b5c64aa0d74495fc88f476e3886f50b00f35c2d8.gif)
 
 ![image alt](https://i.postimg.cc/QN5Nv5N7/tenor-1.gif)
-ˏˋ°•*⁀
+ˏˋ°•*⁀➷
 ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06) — [rᥱᥒ𝗍rᥡ](https://rentry.co/feis2rntry) , [s𝗍rᥲᥕ](https://feis2strww.straw.page) — ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06) .☘︎ ݁˖
 
 ![image alt](https://64.media.tumblr.com/604e6422a9c614d446f1e6f0726da47a/8490e15d3c43c594-54/s400x600/b5c64aa0d74495fc88f476e3886f50b00f35c2d8.gif)
