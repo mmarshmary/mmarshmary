@@ -1,25 +1,16 @@
+![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)
+![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif)![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06)![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif)
+<p align="center">.・。.・゜✭・🍂・✫・゜・。.
 
-<p align="center">!꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
+![image alt](https://64.media.tumblr.com/604e6422a9c614d446f1e6f0726da47a/8490e15d3c43c594-54/s400x600/b5c64aa0d74495fc88f476e3886f50b00f35c2d8.gif)
 
-<p align="center">✧─── ･ ｡ﾟ★: *.✦ .* :★. ── ✧
+![image alt](https://i.postimg.cc/QN5Nv5N7/tenor-1.gif)
+ˏˋ°•*⁀
+![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06) — [rᥱᥒ𝗍rᥡ](https://rentry.co/feis2rntry) , [s𝗍rᥲᥕ](https://feis2strww.straw.page) — ![image alt](https://pix.crd.co/assets/images/gallery04/85508bed.gif?v=f7086f06) .☘︎ ݁˖
 
-<p align="center">“ . і𝗍's ᑲᥱᥱᥒ s᥆ ᥴᥙ𝗍ᥱ, і𝗍 ᥲᥣm᥆s𝗍 ᥣ᥆᥆kᥱძ ᥣіkᥱ ᥲ sһᥲmᥱ𝖿ᥙᥣ ᥕһі𝗍ᥱ ᥣіᥱ ~ . „
-
-  ![image Alt](https://i.postimg.cc/v8gkrQJQ/Untitled80-20250220171837.png) 
-![Image Alt](https://github.com/mmarshmary/hiw-to-do-this/blob/2afa26909ebc602eefc060673d68316bda4b074b/Untitled75_20250217174310.png) 
-![image Alt](https://i.postimg.cc/v8gkrQJQ/Untitled80-20250220171837.png) 
-<p align="center">✩.･*:｡≻───── ⋆♡⋆ ─────.•*:｡✩
-
-<p align="center">✦ — { 𝐶𝑜𝑛𝑠𝑖𝑑𝑒𝑟𝑒𝑑 𝑎𝑠 𝐹𝑒𝑖 / 𝐹𝑒𝑖𝑠𝑎𝑛 / 𝐴𝑖𝑟𝑖 ! } — ✧
-
-<p align="center">!⊱ ────── {.⋅ ♫ ⋅.} ───── ⊰! 
-
-![image alt](https://github.com/mmarshmary/hiw-to-do-this/blob/97d6d4456d25cfc265743e574be2454df834d964/tumblr_093a21b70e8033ef7631119253f8355c_3c223870_400.gif)
-
-✩.･*:｡≻───── ⋆♡⋆ ─────.•*:｡✩
-<p align="center">« ♡ 𝚆𝚎𝚋𝚙𝚊𝚐𝚎𝚜 / 𝚂𝚒𝚝𝚎𝚜 ♡ »
+![image alt](https://64.media.tumblr.com/604e6422a9c614d446f1e6f0726da47a/8490e15d3c43c594-54/s400x600/b5c64aa0d74495fc88f476e3886f50b00f35c2d8.gif)
+<p align="center">❀•°•═════ஓ๑ 🌼 ๑ஓ═════•°•❀
   
-« . — ✧ [rᥱᥒ𝗍rᥡ](https://rentry.co/feis2rntry) , [s𝗍rᥲᥕ](https://feis2strww.straw.page) ,     [⍴rᥒs](https://en.pronouns.page/@feisannx) , [gᥙᥒs](https://guns.lol/mmarshmary) ✧ — . »
+·˚ ༘₊· ͟͟͞͞꒰ ![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ᥴᥲᥣᥣ mᥱ ᥲs? іᥒ [һᥱrᥱ!](https://en.pronouns.page/@feisannx) ![image alt](https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif) ♰  ͟͟͞͞ ·₊
 
-![image Alt](https://i.postimg.cc/v8gkrQJQ/Untitled80-20250220171837.png) 
-![image Alt](https://i.postimg.cc/FRzrg7cr/f60a5a8d054717ae9501bd2de9df37f3.gif) 
+![image alt](https://i.postimg.cc/W4LTLB0T/Untitled123-20250322194428.png)
