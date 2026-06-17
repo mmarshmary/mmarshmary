@@ -13,6 +13,6 @@
 
 $${\color{#FFDBE4}𝐟 \color{#DAFAFF}𝐞 \color{#FFCEF0}𝐢 \color{#FFDBE4}⠀𝐨 \color{#DAFAFF}𝐫 \color{#FFDBE4}⠀𝐦 \color{#DAFAFF}𝐞 \color{#FFCEF0}𝐥 \color{#FFDBE4}⠀⠀ৎ˙⠀⠀𝐜 \color{#DAFAFF}+ \color{#FFCEF0}𝐡 \color{#FFDBE4}⠀ 𝐟 \color{#DAFAFF}𝐫 \color{#FFCEF0}𝐞 \color{#FFDBE4}𝐞 \color{#DAFAFF}𝐥 \color{#FFCEF0}𝐲!}$$
 
-$$wip... ok$$
+$$wip... ok best viewed in dark mode..ok$$
 
 ![](https://github.com/mmarshmary/mmarshmary/blob/299f994277b1d316edc54e380d0e792e90d9bfb6/Untitled369_20260420173010.png) 
